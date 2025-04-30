@@ -1,1 +1,1 @@
-# YeJi_university_baihuawenmindan
+# 东方文理大学名单
